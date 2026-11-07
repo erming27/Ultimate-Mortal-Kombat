@@ -214,4 +214,4 @@ Ultimate Mortal Kombat is available as a complete free version with all features
 Don't miss out on the chance to relive the excitement of Ultimate Mortal Kombat. Click the download button above to get started today!
 
 ---
-**Last updated:** 2026-11-07 09:27:26 UTC
+**Last updated:** 2026-11-07 15:59:21 UTC
